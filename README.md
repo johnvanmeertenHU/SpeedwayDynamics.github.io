@@ -1,1 +1,0 @@
-# SpeedwayDynamics.github.io
